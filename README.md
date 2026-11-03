@@ -1,0 +1,1 @@
+# studiul-individual-nr2
